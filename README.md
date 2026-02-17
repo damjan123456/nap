@@ -1,1 +1,0 @@
-projekat iz napredne analize podataka
